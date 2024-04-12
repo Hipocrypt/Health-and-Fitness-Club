@@ -1,3 +1,3 @@
 # Health-and-Fitness-Club
 Daniel Esenwa 101199099 <br>Nigel Wanga Matalanga - 101227580 <br>
-Link to Video - https://www.youtube.com/watch?v=_eQyWIx5zmY
+Link to Video - https://youtu.be/_eQyWIx5zmY
